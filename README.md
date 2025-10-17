@@ -43,8 +43,8 @@
 ## 📫 Onde me encontrar
 
 🔗 [GitHub](https://github.com/jao-carmo)  
-✉️ (joaoepdocarmo@gmail.com)  
-💼 (https://www.linkedin.com/in/jo%C3%A3o-pedro-epaminondas-do-carmo-383092312/)  
+✉️ [E-mail]joaoepdocarmo@gmail.com
+💼 [LinkedIn]https://www.linkedin.com/in/jo%C3%A3o-pedro-epaminondas-do-carmo-383092312/  
 
 ---
 
